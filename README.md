@@ -19,7 +19,7 @@
 ##  LinkedIn posting :
 
 <a href="https://www.linkedin.com/in/wiem-borchani/">
-<img src="https://user-images.githubusercontent.com/52404192/114697311-abf89080-9d15-11eb-9405-353a88b88911.png" width="250px">
+<img src="https://user-images.githubusercontent.com/52404192/114699695-891bab80-9d18-11eb-84f8-a7846cdee723.png" width="250px">
   </a>
   
   <a href="https://www.linkedin.com/feed/update/urn:li:activity:6787833561480232960/"> Day_1 </a> |
