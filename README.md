@@ -16,10 +16,10 @@
 ❄️ https://www.linkedin.com/in/wiem-borchani/
 
 ##  Twitter posting :
-   <a href="https://twitter.com/wiam_wiem_B/status/1382061934418276356"> Day_1 </a> |
+   <a href="https://twitter.com/wiam_wiem_B/status/1382061934418276356"> Day_1 </a> |<a href="https://twitter.com/wiam_wiem_B/status/1382449520492052482"> Day_2 </a> |
   
 ##  LinkedIn posting :  
-  <a href="https://www.linkedin.com/feed/update/urn:li:activity:6787833561480232960/"> Day_1 </a> |
+  <a href="https://www.linkedin.com/feed/update/urn:li:activity:6787833561480232960/"> Day_1 </a> | <a href="https://www.linkedin.com/feed/update/urn:li:activity:6788215709500485632//"> Day_2 </a> |
   
 ## Motivation
 
