@@ -10,7 +10,7 @@
 ##  Twitter posting :
 
 <a href="https://twitter.com/wiam_wiem_B">
-<img src="https://user-images.githubusercontent.com/52404192/114697525-ebbf7800-9d15-11eb-99c4-0ab1c066cb52.png" width="250px"> 
+<img src="https://www.magisto.com/blog/wp-content/uploads/2019/03/Twitter.jpg" width="250px"> 
   </a>
   
   <a href="https://twitter.com/wiam_wiem_B/status/1382061934418276356"> Day_1 </a> |
