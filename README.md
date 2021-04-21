@@ -16,7 +16,7 @@
 ❄️ https://www.linkedin.com/in/wiem-borchani/
 
 ##  Twitter posting :
-   <a href="https://twitter.com/wiam_wiem_B/status/1382061934418276356"> Day_1 </a> |<a href="https://twitter.com/wiam_wiem_B/status/1382449520492052482"> Day_2 </a> |<a href="https://twitter.com/wiam_wiem_B/status/1382855534546714624"> Day_3 </a> | |<a href="https://twitter.com/wiam_wiem_B/status/1383162674985508877"> Day_4 </a> |<a href="https://twitter.com/wiam_wiem_B/status/1384277420140744714"> Day_5 </a> |<a href=""> Day_6 </a> |
+   <a href="https://twitter.com/wiam_wiem_B/status/1382061934418276356"> Day_1 </a> |<a href="https://twitter.com/wiam_wiem_B/status/1382449520492052482"> Day_2 </a> |<a href="https://twitter.com/wiam_wiem_B/status/1382855534546714624"> Day_3 </a> | |<a href="https://twitter.com/wiam_wiem_B/status/1383162674985508877"> Day_4 </a> |<a href="https://twitter.com/wiam_wiem_B/status/1384277420140744714"> Day_5 </a> |<a href="https://twitter.com/wiam_wiem_B/status/1384667368425762816"> Day_6 </a> |
   
 ##  LinkedIn posting :  
   <a href="https://www.linkedin.com/feed/update/urn:li:activity:6787833561480232960/"> Day_1 </a> | <a href="https://www.linkedin.com/feed/update/urn:li:activity:6788215709500485632//"> Day_2 </a> | <a href="https://www.linkedin.com/feed/update/urn:li:activity:6788631653011988480/"> Day_3 </a> | <a href="https://www.linkedin.com/feed/update/urn:li:activity:6788935037183107072/"> Day_4 </a> | <a href="https://www.linkedin.com/feed/update/urn:li:activity:6790045295590809600/"> Day_5 </a> | <a href=""> Day_6 </a> |
